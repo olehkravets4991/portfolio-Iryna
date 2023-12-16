@@ -1,3 +1,3 @@
-Thank you for using our template!
+Iryna Kravets Portfolio
 
 
